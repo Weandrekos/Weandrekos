@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Weandrekos
+- 👀 I’m interested in learning Lua on Roblox and Other apps (Mainly Roblox Lua)
+- 🌱 I’m currently learning The Bassics of Lua
+- 💞️ I’m looking to collaborate on ...(Nothing at this moment)
+- 📫 How to reach me Discord: Enmity#6125, Email: Weandre.gaming@gmail.com
